@@ -1,7 +1,7 @@
-### Welcome to Nahyeon's profile 🌟
+### Welcome to my profile 🌟
 
 **❔About me..❕**
-> 성장하는 개발자가 목표인 김나현입니다!
+> Hi there✨ I'm Nahyeon Kim
 
 **⚡contact me⚡**
 
