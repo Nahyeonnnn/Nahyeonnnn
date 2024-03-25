@@ -1,6 +1,6 @@
 ### Welcome to my profile 🌟
 
-**❔About me..❕**
+**❔About me...❕**
 > Hi there✨ I'm Nahyeon Kim
 
 **⚡contact me⚡**
