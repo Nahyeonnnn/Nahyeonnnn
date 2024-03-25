@@ -27,6 +27,6 @@
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Nahyeonnnn&show_icons=true&theme=dracula)
 
-### Final voca
+### ✋Final voca
 
 - 도전, 성장💥
